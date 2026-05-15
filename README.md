@@ -8,7 +8,6 @@
     <strong> 📖 𝙒𝙝𝙖𝙩 𝙖𝙢 𝙄 𝙩𝙧𝙮𝙞𝙣𝙜 𝙩𝙤 𝙡𝙚𝙖𝙧𝙣:</strong> English and Spanish  <br>
     <strong> 💬 𝗔𝗯𝗼𝘂𝘁 𝗺𝗲:</strong> Just a hard-working guy who has Jesus Christ above all else✝️.  <br>
     <strong> 💼 𝗙𝗿𝗲𝗲𝗹𝗮𝗻𝗰𝗲𝗿𝘀 𝗝𝗼𝗯𝘀:</strong> Paid traffic manager🧠🧑‍💼 and Website Builder💻🛠️ <br>
-    <strong>🚀 𝗔𝗯𝗼𝘂𝘁 𝗺𝘆 𝗦𝘁𝗮𝗿𝘁𝘂𝗽:</strong> <img src="https://github.com/user-attachments/assets/fb38efc8-aa4b-4877-a2d8-1ebf199df197" alt="Startup Icon" width="25" style="border-radius: 100%; vertical-align: middle; margin-right: 5px;"> <br>
     <strong> 🗣️ 𝗟𝗮𝗻𝗴𝘂𝗮𝗴𝗲𝘀:</strong> Portuguese, English and Spanish  <br> <strong> 💻 𝗧𝗲𝗰𝗵𝗻𝗼𝗹𝗼𝗴𝗶𝗲𝘀:</strong>
     <div style="margin-top: 4px; margin-bottom: 15px;">
       <strong>𝗠𝗮𝗿𝗸𝘂𝗽 𝗟𝗮𝗻𝗴𝘂𝗮𝗴𝗲𝘀:</strong>
